@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with automatic Scanner for degen coin sniper bot | multi-chain-support & proxy-transactions, the #1 degen coin sniper bot. Includes multi-chain-support and
 
 
 
